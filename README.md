@@ -11,6 +11,6 @@ Much more predictions, AI/ML/ Deep Learning...Work 
 For any suggestion/work DM - info@tantabyte.org 
 we highly appreciate your time.  WhatsApp - https://wa.me/919205137675
 
-Our all files & Code here are For Non-Commercial use Only, For Commercial Use: Give Credit to ROBOSLOG & Tantrabyte
+Our all files & Code here are For Non-Commercial (Educational) use Only, For Commercial Use: Give Credit to ROBOSLOG & Tantrabyte
 Thanks
 More updates coming soon..
